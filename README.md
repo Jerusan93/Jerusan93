@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @
+- 👋 Hi, I’m @jerusan93
 - 👀 I’m interested in football.
 - 🌱 I’m currently learning informatic.
 - 💞️ I’m looking to collaborate on ...
